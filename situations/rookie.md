@@ -3,4 +3,4 @@ The Rookie just barely catches the ball and is able to run it to the end zone. Y
 
 [Attend college to attempt and make it into the NFL as a quarterback]
 [Give up football and learn to code]
-[]
+[Train the son of a billionaire for 25 million dollars]
